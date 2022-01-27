@@ -11,6 +11,8 @@ welcome to my git hub!
 
 🖥--My portfolio is viewable at https://rgladue.github.io/rgladue-github-io
 
+Thanks for stopping by, and have a great day!!
+
 
 
 
